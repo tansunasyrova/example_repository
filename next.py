@@ -1,5 +1,3 @@
 #yohjijhijh just text
 uhuhujjjjjjjjjjjjjjjjjjjjjjjjjjjjjjj
 ppppppppppppppppppp
-ooooooonext
-iiiiinext
